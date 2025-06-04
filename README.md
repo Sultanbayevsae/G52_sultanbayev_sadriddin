@@ -1,0 +1,1 @@
+# G52_sultanbayev_sadriddin
